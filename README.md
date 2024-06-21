@@ -1,1 +1,1 @@
-# **[Deuxly](https://sekode.web.id)**
+# **[Deuxly](https://deuxly.net)**
